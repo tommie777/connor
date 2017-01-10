@@ -1,2 +1,4 @@
 # connor
 presentatie uitleg can connor
+
+duiydrthuiorstxghvjuir7eyrsdgiut8r7dyhcgjvkhirudyhcgvjkhitudyxgfhcvuytudyfchgvjbkhgidyxfgh vgut8rdyxfcgkvhgutdyxfcgkvhgiutfdycgvhuoyfutcghjvbkiotfudycghvjbkioyt8futcgvjhbky9t78fucgvjhb
